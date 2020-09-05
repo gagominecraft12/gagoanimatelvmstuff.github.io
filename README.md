@@ -1,2 +1,1 @@
-# tambear.github.io
- eat shit dumbass
+why the hek u patch goanimate wrapper
